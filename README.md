@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Emil
+- 👀 I’m interested in programming and other things
+- 📫 How to reach me: via email (look on youtube)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Been on YouTube since 2019
